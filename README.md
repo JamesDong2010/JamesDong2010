@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JamesDong2010
 - 👀 I’m interested in coding and math
 - 🌱 I’m currently learning coding and math analysis
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nothing😜
 - 📫 How to reach me: email me at jamesdong2010@icloud.com and I will reply ASAP
 
 <!---
